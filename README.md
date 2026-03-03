@@ -5,3 +5,4 @@ people in anyway right now some we need more people to support our guide
 line and indeed we are here 
 a boy that has a good manner is a boy like people who needed even me I love the person
 it was time where people know who leading them all we are wises person no more doubt 
+Alhamdulillah and relate it and intimate companion of understanding 
