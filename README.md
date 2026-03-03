@@ -9,3 +9,4 @@ Alhamdulillah and relate it and intimate companion of understanding
 so that the companion does not interpret the dream badly 
 if a person has a dream three time over the left shoulder or turn to the side 
 or stand up to reciting the following pray the dream will not course any harm
+no one be like you if you stand along just be a good person 
